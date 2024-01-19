@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any app projets. I need to build my eperience. 
 - 📫 How to reach me: Telegram @Fibonacci69  Instagram @callmeakioe  LinkedIn @David Austin
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm a uick learner and I've had little trouble picking things up when I have exxperience and someone to guide me. 
+- ⚡ Fun fact: I'm a quick learner and I've had little trouble picking things up when I have experience and someone to guide me. 
 
 <!---
 Fibonacci-69/Fibonacci-69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
